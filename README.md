@@ -16,7 +16,7 @@ Terima kasih dan semoga bermanfaat!
 
 6. Bagas Priambodo
 
-7. Priska E. Lumban Batu
+7. Priska E. Lumban Batu 26050120120031 Oseanografi A
 
 8. Laurentia Levina Pramestanti           26050120140126 Oseanografi B
 
