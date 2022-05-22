@@ -4,7 +4,7 @@ Repositori ini dibuat untuk memenuhi Tugas Akhir Praktikum Pemodelan Oseanografi
 Terima kasih dan semoga bermanfaat!
 
 # ANGGOTA KELOMPOK 1
-1. Aloysius Dimas Sanjaya Saliyo
+1. Aloysius Dimas Sanjaya Saliyo          26050120130056  Oseanografi A
 
 2. Fairus Jamil Rizqullah
 
