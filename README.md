@@ -18,6 +18,6 @@ Terima kasih dan semoga bermanfaat!
 
 7. Priska E. Lumban Batu
 
-8. Laurentia Levina Pramestanti
+8. Laurentia Levina Pramestanti           26050120140126 Oseanografi B
 
 sdadasd
