@@ -6,7 +6,7 @@ Terima kasih dan semoga bermanfaat!
 # ANGGOTA KELOMPOK 1
 1. Aloysius Dimas Sanjaya Saliyo          26050120130056  Oseanografi A
 
-2. Fairus Jamil Rizqullah                 26050120140103  Oseanografi B
+2. Fairus Jamil Rizqullah
 
 3. Dafina Amadita Shaquilla               26050120140168  Oseanografi A
 
@@ -14,9 +14,9 @@ Terima kasih dan semoga bermanfaat!
 
 5. Khana Nadira Sastradjaja               26050120140166  Oseanografi B
 
-6. Bagas Priambodo
+6. Bagas Priambodo                        26050120140143  Oseanografi B
 
-7. Priska E. Lumban Batu 26050120120031 Oseanografi A
+7. Priska E. Lumban Batu
 
 8. Laurentia Levina Pramestanti           26050120140126 Oseanografi B
 
